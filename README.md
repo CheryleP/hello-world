@@ -1,1 +1,1 @@
-This folder is for practicing GitHub work flow.
+My name is Cheryle Pilbeam. I am married, and I have one child. 
